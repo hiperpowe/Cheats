@@ -1,3 +1,5 @@
+If one of the cheats is crashing your game PLS go to the Issues tab and report it. Thank you
+
 How to download the cheats
 
 1. Click one of the cheats that you want
